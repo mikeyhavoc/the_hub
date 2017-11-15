@@ -1,24 +1,8 @@
-# Jekyll Doc Theme
+# The Bartenders Fight Club
 
-Go to [the website](https://aksakalli.github.io/jekyll-doc-theme/) for detailed information and demo.
+>Nothing more than stories, rants, tales, trailing tangents, and thoughts.
 
-## Running locally
+## What is this all about
 
-You need Ruby and gem before starting, then:
-
-```bash
-# install bundler
-gem install bundler
-
-# clone the project
-git clone https://github.com/aksakalli/jekyll-doc-theme.git
-cd jekyll-doc-theme
-
-# run jekyll with dependencies
-bundle exec jekyll serve
-```
-
-## License
-
-Released under [the MIT license](LICENSE).
-# the_hub
+This is the space for my mind. You can read. you can engage. your welcome to do whatever you like. Just do not get wrapped up too much.
+When the story is over, it is over. Or whatever comes about.
