@@ -1,7 +1,31 @@
-come up with why there was a fake door in the vague memories 
-of the origin where I come into the story and why I did it.
-thinking I would never need to use this emergency door. to 
-reset my system. 
+---
+layout: post
+title: The Exit?
+date: 2017-11-15 15:07:48 -0400
+author: M.W
+category: story
+---
+# Lights out
 
-be very vague.
-but with some cryptic details and throw in some touches.
+As the door opened a blinding light struck me. Walking in a white room. It looked like it could go on forever. 
+Completely empty and looking like something out of a horror film.
+
+> "What the fuck do you want from me!" - I screamed. "Where the hell am I!" 
+
+Unsure of anything and not knowing how to escape I started looking for something. I found a lone pen. Drawing on the walls, I drew pictures. I draw anything I could think. 
+
+After what sounded like an eternity, I started to hear an alarm.
+
+> Game Over! Game Over! Game Over!
+
+Then I just saw fuzziness "what is going on?!" - I muttered completely lost.
+
+Just then my eyes got uncovered, and Sean mutters 'Poor way to spend your time in the anything-verse.'
+
+> What?! - I cough out as my head tries to recollect what happened.
+
+> Hey your the the one who wasted it in a dream land that was fucked up and totally twisted.. you.you need therapy.,you were a fucking dude in your dream Michelle. It was a pathetic take on something sad as that stupid movie... you know the lame guy, and a giant sinking ship.. he should of pushed the girl off the board and saved himself but instead......... he drowns?! go over there as sean points to another machine, they have a therapy bot. Or.. you could watch what it is like to really play anything-verse!! hey-yo!
+
+
+
+
