@@ -3,6 +3,7 @@ layout: post
 title: The Stricken
 date: 2017-11-07 11:55:55 -0400
 author: M.W
+category: story
 ---
 # The Beginning Times
 
@@ -20,4 +21,3 @@ Three thousand five hundred thirty five years in **version** one, patch fourty f
 
 A red circle flares up and out of three groups are pushed out. _Sneebs_, an _Alpha Tangos_, and a _zorbs_ cast from the _galaxy of a nibble_. Thrown out for acts of hipocracy and other junk...or something who cares. _Sneebs_, small and quick started to stealthliley take over land, and start to build their amass of fortune on D-456 quickly. _Alpha Tangos_ split into two different groups, one group _Alpha Tango Sigma_ took to the mountains while _Alpha Tango Delta_ headed to caves. As for _zorbs_, they began spreading all over D-456 fighting amongst themselves and the other groups. They were an aimless, nonsensical, group who lacked any knowledge other than _divide and conquer_. As D-456 became more filled, it became harder to find things to trade. Although, around this time a huge __rift in time_ hit the _galaxy of byte_ and hit D-456 almost splitting it in half. D-456, became an evolution experiment from that day on. The half who were on the rift side evolved to superior beings and started to learn. While there counter parts became enemies, fighting, battling for dominance of the land. That created a new timeline,  the higher level _zorbs_, _Alpha Tangos_, and _sneebs_ joined forces. While the others stayed in there packs fighting not only each other but now the higher order. In the era called **1.0-RE**.
 
-### If a Sneeb Dies Does Anyone Hear It
