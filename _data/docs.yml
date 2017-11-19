@@ -1,3 +1,4 @@
+
 - title: Getting Started
   docs:
   - home
@@ -9,4 +10,7 @@
   - cheatsheet
   - font-awesome
   - bootstrap
+
+- title: sub-story
+  docs: 
   - the-tale-of-two
