@@ -6,45 +6,20 @@ redirect_from: /docs/index.html
 
 ## Getting started
 
-[GitHub Pages](https://pages.github.com) can automatically generate and serve the website for you.
-Let's say you have a username/organisation `my-org` and project `my-proj`; if you locate Jekyll source under `docs` folder of master branch in your repo `github.com/my-org/my-proj`, the website will be served on `my-org.github.io/my-proj`.
-The good thing about coupling your documentation with the source repo is, whenever you merge features with regarding content to master branch, it will also be published in the webpage instantly.
+Greetings... within these docs are ongoing rambles of stories. 
+They are tangents, they are raw, they are what I enjoy and they enjoy what the universe offers.
 
-1. Just download the source from [github.com/aksakalli/jekyll-doc-theme](https://github.com/aksakalli/jekyll-doc-theme/master) into your repo under `docs` folder.
-2. Edit site settings in  `_config.yml` file according to your project.
-3. Replace `favicon.ico` and `img/logonav.png` with your own logo.
+## Releases 
 
-## Writing content
+I will try to release a new part of one story a week.
+The rules are, 
+1. there can only be 5 stories at the same time going at the same time.
+2. only one part of a story is released each week.
+3. only once an entire story is done can a new story be released.
+4. I will put the story dates of release and title here when they are released.
+5. once a story is established it seperates from blog posts in telling.
+6. these tales are everything and nothing at the same time.
+7. I do not know a genre for these stories give it to them yourself.
+8. these are licensed to me ask me if you want to use them. you must ask for **Permission**.
 
-### Docs
 
-Docs are [collections](https://jekyllrb.com/docs/collections/) of pages stored under `_docs` folder. To create a new page:
-
-**1.** Create a new Markdown as `_docs/my-page.md` and write [front matter](https://jekyllrb.com/docs/frontmatter/) & content such as:
-
-```
----
-title: My Page
-permalink: /docs/my-page/
----
-
-Hello World!
-```
-
-**2.** Add the pagename to `_data/docs.yml` file in order to list in docs navigation panel:
-
-```
-- title: My Group Title
-  docs:
-  - my-page
-```
-
-### Blog posts
-
-Add a new Markdown file such as `2017-05-09-my-post.md` and write the content similar to other post examples.
-
-### Pages
-
-The home page is located under `index.html` file. You can change the content or design completely different welcome page for your taste. (You can use [bootstrap componenets](http://getbootstrap.com/components/))
-
-In order to add a new page, create a new html or markdown file under root directory and link it in `_includes/topnav.html`.
