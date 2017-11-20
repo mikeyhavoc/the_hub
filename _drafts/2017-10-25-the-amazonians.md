@@ -9,24 +9,13 @@ category: story
 
 > ... We count down as we wait for the mighty selector moving through the sky.
 
-The mighty has risen once again, there is nothing we can do but rise also, to the occasion. Day or night, it is not ours to choose, but if be chosen. There is no going back, the writings of old have writings of fates once the decision has been made and not carried out. 
+## The Amazonians
 
-## Failing To Show 
+Lost among technology, far away far away are the Amazonians. They are a resilient yet supersticous group. The Amazonians have never ventured outside of there territory nor believe it is safe too. Being delivered a quest by there god the click not wanting to anger it they live to please the click.
 
-Long ago, in the history files provides data telling of failing to carry out task. Note due to how fast Amazonian technology advances, this is considered lost technology since it is from the pre era. 
-The files come from a repository dating in 1993, all files before 2000 are of ancient times to the Amazonians. 
-Digging through the file it says about ->
-`Failing To Carry Out`<br>
-`if !person:`<br>
-`Gather people for task()`<br>
-`else:`<br>
-`for task() carryout[commands] by_magnitude[reward/doom]:`<br>
-`if task succes:`<br>
-`return reward and survive`<br>
-`else:`<br>
-`return fail and ( death * maginutude )`<br>
- 
+### Amazonian beginnings
 
+Back long, long ago days now the Amazonians historians believe they started out in one small village. This sole village is where the Amazonians all came from. They believe life was simple back then because they did not have the advancements they created or what the mighty click was ready to reveal to them.
  
    
 
