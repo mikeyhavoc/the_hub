@@ -32,16 +32,3 @@ in the records recorded the last data record that can be looked up reports.
 
 Wondering about the _slogops_ and what happened to the other part of the team I quickly copied all data I possibly could from the archives. Before anyone caught onto what I was doing. For it is forbidden to take data out of the archives in Amazonia.
 I got the data about all the archeological digs, the cursed dig, info on the missing data file and keys, the missing team memebers, and the tiny shred of data about the unrecord author.
- 
-   
-
-     
-    
-   
-
-
-
-## The Mighty Controllers Who Control  
-
-The Controllers, that control our fate come from a far land. Much further than our ever expanding galaxy. 
-**Selectors** are born constantly, they are majestic, with grace and power. No matter how far back in the writings of old, Selectors have been in creation. We are at their very mercy yet at the same time 
