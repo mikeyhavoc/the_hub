@@ -20,7 +20,17 @@ As they started to find these archeological finds further in time. They started 
 
 ### Archeological Meltdown
 
-One 
+In the records, a note says "Stop digging you will end cizilization!"<br>
+in the records recorded the last data record that can be looked up reports.
+>log 2001-12-31 As we started to excavate in the far end of border of Tara the lost lands. As we were pushing cobwebs away we found red lights everywhere and many ports broken. The very last port that said "last resort" was still green, something we have not come across at any excavation site before! Meanwhile another team found the hub controller room for all the ports. Some stayed back at the port and two others and myself went to the control room. Ransacking the control room we found an auxillary power source that still worked amazingly. Next we found 3 data keys and 2 crypto keys. as we inserted the crypto key on the mic we heard screaming! something? or someone was screaming some kind of undiscernible noise from the port! As we turned on a viewing screen, it was too late!! **Something** was pulling our other teammates in with its 6 arms into the green lit port! 
+
+> supplemental log, we turned off the energy source. we lost two men though. we have four books from this control room 2 crypto keys and 4 data files to analyze later. As we rushed out to help our comrad he was delirious screaming beware of _slogops_!! My team mate says he saw unspeakable things from dimensions a plenty. The _sloglops_ want to bring over and invade our dimension with. To keep the _slogops_ out of this dimension we have sent the crypto keys to.... 
+
+'end transmission' <br>
+
+### Questions
+
+Wondering about the _slogops_ and what happened to the other part of the team I quickly copied all data I possibly could from the archives. Before anyone caught onto what I was doing. For it is forbidden to take data out of the archives in Amazonia. 
  
    
 
