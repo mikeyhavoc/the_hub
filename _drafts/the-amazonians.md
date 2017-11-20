@@ -30,7 +30,8 @@ in the records recorded the last data record that can be looked up reports.
 
 ### Questions
 
-Wondering about the _slogops_ and what happened to the other part of the team I quickly copied all data I possibly could from the archives. Before anyone caught onto what I was doing. For it is forbidden to take data out of the archives in Amazonia. 
+Wondering about the _slogops_ and what happened to the other part of the team I quickly copied all data I possibly could from the archives. Before anyone caught onto what I was doing. For it is forbidden to take data out of the archives in Amazonia.
+I got the data about all the archeological digs, the cursed dig, info on the missing data file and keys, the missing team memebers, and the tiny shred of data about the unrecord author.
  
    
 
