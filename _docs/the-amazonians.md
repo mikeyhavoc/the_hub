@@ -3,7 +3,7 @@ layout: post
 title: The Amazonians
 date: 2017-10-25 10:07:48 -0400
 author: M.W
-category: story
+category: docs/story
 ---
 # Count Down
 
