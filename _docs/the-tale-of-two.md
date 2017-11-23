@@ -1,7 +1,7 @@
 ---
 title: The tale of Two
 date: 2017/11/18 18:02:25 -0400
-author: M.W
+author: Michael Williams
 category: sub-story
 permalink: docs/the-tale-of-two/
 ---
