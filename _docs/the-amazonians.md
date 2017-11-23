@@ -1,8 +1,7 @@
 ---
-layout: post
 title: The Amazonians
 date: 2017-10-25 10:07:48 -0400
-author: M.W
+author: Michael Williams
 category: docs/story
 ---
 # Count Down
