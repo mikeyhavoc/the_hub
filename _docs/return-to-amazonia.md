@@ -15,4 +15,8 @@ The Amazonia tribes are vast now. Scaling multitudes, yet only work with each ot
 
 ## Beggars Can Not Be Choosers
 
-Sneaking out of the library of knowledge, Alex made it with the censored data from the library, the data from the dig, and the info to hunt the authors down.  
+Sneaking out of the library of knowledge, Alex made it with the censored data from the library, the data from the dig, and the info to hunt the authors down. As Alex, makes his way out down an alley to his secret hiding space. Someone calls out to him...
+> Alex, where have you been! It is your turn to stand watch for the sign! They have been coming frequently! - yelled of of the Amazonians of old.
+Alex shrugged...knowing this might happen he had everything hidden on him.<br>
+"Okay I will be there in a flash!" - yelled Alex
+Rushing to get to the post, Alex saw some of the 'fails' being taken to the other side. Trying not to notice or show sympathy as he passed, Alex knew the information he how this came about and where they were lead too. 
