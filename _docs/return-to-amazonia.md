@@ -11,7 +11,12 @@ Although to the Amazonians look to the skies for direction and even have guards 
 
 ## The Beginning
 
-The Amazonia tribes are vast now. Scaling multitudes, yet only work with each other to make sure the 'task' is completed. Then they return to their respected tribes triumphantly. But this was not how they started out. And now only 3 Amazonians remain knowing the history of the the Amazonians...
+The Amazonia tribes are vast now. Scaling multitudes, yet only work with each other to make sure the 'task' is completed. Then they return to their respected tribes triumphantly. But this was not how they started out. And only 3 Amazonians remain knowing the history of the the Amazonians...other than Alex.
+
+###  The Wise Men
+
+Log v.1.0.0 
+This data set context is in case of the demise of my wise men and myself. I never intended for the rule of Amazonia to be as it is. We thought simplification was best but possibly that was overly true here. The wise men have all done there own thing to hide in a certain utopia gone wrong. To protect them and myself though and contractually to work we were deleted out of every known database system in Amazonia. so technically we do not exist.         log out| The Author.
 
 ## Beggars Can Not Be Choosers
 
@@ -20,3 +25,4 @@ Sneaking out of the library of knowledge, Alex made it with the censored data fr
 Alex shrugged...knowing this might happen he had everything hidden on him.<br>
 "Okay I will be there in a flash!" - yelled Alex
 Rushing to get to the post, Alex saw some of the 'fails' being taken to the other side. Trying not to notice or show sympathy as he passed, Alex knew the information he how this came about and where they were lead too. 
+
