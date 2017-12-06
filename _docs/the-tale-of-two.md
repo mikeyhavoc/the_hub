@@ -44,3 +44,14 @@ Packaged in a fancy bow, the guts, tied to some fancy licenses that the original
 Being marketed as the next swiss army knife of tech, it was pushed and pushed hard. Little did they know, no one bought this thought. How can it be good at everything? How could it be any awesome at so much stuff? How could it replace so many other tools, and yet be as well rounded as they said it was. It was bulky, it was a mess, it was not slick at all. but hey someone thought it could pull it off. Right?
 > "NO NO NO NO This is garbage! what is anyone going to do with this?!" - said the head of the company 
 > "Just toss it or sell it off i dont care. - he torted.
+
+## The Drop
+
+So there they were, two nobodys, asking to take what was suppose to be the biggest flop off of a corporations hands so they would not look bad.
+> "what we owe you for this junk" - questioned a young man with glasses.
+> "The boss said nothing as long as our name is off all records so we do not sound like this came into our hands and we were going to promote it.
+> "alright sounds like a deal" - Said the other slender gent.
+
+The young intern who was passing the few prototypes on so no one would be seen with the items .... then asked. 
+> "so what are you guys going to make of these horribly designed items?"
+> "something interesting - the mysterious two chimed together.
