@@ -21,5 +21,6 @@ The rules are,
 6. these tales are everything and nothing at the same time.
 7. I do not know a genre for these stories give it to them yourself.
 8. these are licensed to me ask me if you want to use them. you must ask for **Permission**.
+9. hit me up on github or my email address if you would like to be part of the fun.
 
 
