@@ -1,16 +1,18 @@
 ---
-title: The Tale of Tales...
+title: How to Start a War
 date: 2017-11-18 17:59:07 -0500
 author: M.W
 ---
-# The Tale of Tales
+# Knife to a Gunfight
 
 Table of Contents
 
 
 > They say if we look hard enough our souls can listen to the pain of others....
 
-## The Theme Song
+## Those Who Have Souls
+
+In a dusty old town, held a mere 450 people. It was not one of the biggest, but probably not one of the smallest being in the 1920's either. But what they lacked 
 
 In a dusty, old town sat a young man tired from the battle he contended with. Looking at his watch, he knew the countdown was coming on now. Living the life of a hermit meant nothing to this gent. It suited him well, being alone on the opposite side of everything. A building built as if someone was preparing for a nuclear bomb to go off next door. There were many stories roaming the town about the building due to this and more. Graffiti covered sections with words "crazy", "Looney bin", "insane asylum", and so much more. Sometimes The man would spray paint artwork over it other times just leave it. To many in town this house was called unholy....the asylum...but nothing nice.
 
