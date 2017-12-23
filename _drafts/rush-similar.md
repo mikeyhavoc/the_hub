@@ -10,9 +10,9 @@ redirct_from: docs/similarity-1
 > Every small breath... is nothing but a miracle from an interior me casting a breath.
 
 As my heart pounds harder I wake up in a sweat! Screaming, I almost jump out of my bed!
-> What is going on in there? - yells the nurse
-> We heard voices! who is here?! What is the commotion?! - the other children wanted to know
-Unamused I shrugged it off, I am fine. I told them... just a nightmare; Please do not worry, I said. My lord I thought to myself, it was so real. I truly felt in the realm this time. I...I...chose. I decided to become a _similarity_..::gasp:: _no_, this can not be **reality**. That was in _my dreams_ though or was it? I had more questions now then answers. Fuck, oh..sorry where are my manners. I did not even introduce myself.
+> What is going on in there? - yells the nurse!
+> We heard voices! who is here?! What is the commotion?! - the other children wanted to know.
+Calmly I shrugged it off, I am fine. I told them... just a nightmare; Please do not worry, I said. My lord I thought to myself, it was so real. I truly felt in the realm this time. _we..we are getting closer_. Someone decided to become a _similarity_..::gasp:: _no_, this can not be **reality**. That was in _my dreams_ though or was it? I had more questions now then answers. Fuck, oh..sorry where are my manners. I did not even introduce myself, and yes I see you under my bed. Do not be alarmed. Just be **happy** no one else did!.
 
 ## introductions
 
@@ -33,11 +33,16 @@ Well, I now know you met _Gor-gol_. He is not as nice nor as evil as he seems. I
 
 ### Why..Yes Why
 
-So.. you never understood why did you? Well, it is quite simple honestly. You have to reach the end destination to understand though. That is not for a gatekeeper to explain. Especially the originator, I only keep origin gate open. that is my job. Sorry, you have to meet the destinatior to grasp. Just remember your part of the story now to and at the end you might become a gatekeepr too.
-It is part of the gig.
+So.. you never understood why did you? Well, it is quite simple honestly. You have to reach the end destination to understand though. That is not for a gatekeeper to explain. Especially the originator, I only keep the origin gate open. that is my job. Sorry, you have to meet the destinatior to grasp. Just remember your part of the story now to and at the end you might become a gatekeepr too. It is part of the gig.
 
-Drinking mini-similarity, is not just rainbows and butterflies, it is like a beacon. your now one of the chosen. ::look around::.
-I know _Gor-gol_ did not tell you what you were getting into. He never told me either. But hey that is part of the adventure. You will see after the light. But do not worry about it now. Just enjoy the fucking ride. 
+Drinking mini-similarity, is not just rainbows and butterflies, it is like a beacon. your now one of the chosen. ::looks around::.
+I know _Gor-gol_ did not tell you what you were getting into. He never told me either. But hey that is part of the adventure. You will see after the light. But do not worry about it now. Just enjoy the fucking ride...yadda..shh.. someone is coming!
+
+I know you have questions, but this is not the place, this is the worst place honestly! This is the absolute worst landing zone for a mini similarity. Fuck, I wish you did not have such bad luck. You are in terribly grave danger, the only reason I stay here is too keep you stupid fucks from dying. So...I know you did not say it but _your welcome_.
+
+## Tribettica
+
+Right now we are in **Tribettica** which is not only _15 light years_ off your  course. But also not even in jurisdiction of alien races. These quote "people", thank the _moon neir fairy dune_ did not see you. Have been trying to contact outside life for the past 2000 years with primitive means. Failing repeatively, of course but they think they are getting closer. Not knowing they are actually just a tv show for one of the furthest outreaches. Those beings sends them there children's hand me downs and by the time they have reached the planet. Then learned to use... You got it 'Triple A Rating Tv' for them, as the folks here are a disater. The only building that is sealed from reception is this one. 
 
 ## Farewells
 
