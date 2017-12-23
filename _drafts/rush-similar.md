@@ -44,5 +44,12 @@ I know _Gor-gol_ did not tell you what you were getting into. He never told me e
 So, I know you were not asking for this but you are entitled to some knowing. You can metamorphsis into a human right now... Be locked away for eternity in this asylum, never to be seen again, they will lock you in a special area ::grins ear to ear::
 Hey I did not say it was a properable choice did I? I just said it was a choice, now didn't I? So what would you like.. to be locked away in one of the most gruesome asylums, never to be heard from again, having your visions recorded, given pills to have more?
 Or would you like me to help you move to the next gateway?
-I am not a choice maker I only give options in everything. You have freewill here my new friend. Just remember you have a secret in you and they want it here in this compound. They will do anything to get it. So be prepared to live an excruicatingly longer than normal life in extreme torment until they get what get it or they break you.
+I am not a choice maker I only give options in everything. You have free will here my new friend. Just remember you have a secret in you and they want it here, in this compound. They will do anything to get it...and your to live an excruicatingly longer than normal life. If here in extreme torment until they get what they want or they break you...
 
+### Signals On A Wall
+
+**RUN**..did you now hear me? I said fucking run.. down the hall, past the observatory, and through the door that says 'Experiemnts'. I will make a distraction for you, do not worry about that....
+May you find your way in peace remember what I told you on your quest. _May you go in Tal-quar_. Now if you have made your choice, either lie in the bed next to me...or hide behind the door. I am about to set your trap or deversion.
+
+[hide in bed](coward.md)
+[hide behind door](run.md)
