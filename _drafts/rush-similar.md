@@ -46,14 +46,14 @@ Right now we are in **Tribettica** which is not only _15 light years_ off your  
 
 ### Hiding From Tribettica 
 
-The only building that is sealed from reception for them to watch is this one. _Gor-gol_, many many moons ago found out that some mini-similarities were being sent here. Since you have a 1 out of 7 chance; When receiving similarity blood of where you will land. He thought it was dangerous  
+The only building that is sealed from reception for them to watch is this one. _Gor-gol_, many many moons ago found out that some mini-similarities were being sent here. Since you have a 1 out of 7 chance; When receiving similarity blood of where you will land. He thought it was dangerous, decided to come up with 'The Orphange of the Gifted'.  This building has been here for thousands of years, keeping our kind safe for longer than you could imagine. But after millienials of being a stronghold. Those fucking scum... you can call them _soup-sacks_ finally found their way into our sanctuary. I and I alone am the only one left. For my own safety you will never know why they can not find out why they can not tell I am of your kind. In case they capture you....because...
 
 ## Farewells
 
 ### Options You have Gained
 
-So, I know you were not asking for this but you are entitled to some knowing. You can metamorphsis into a human right now... Be locked away for eternity in this asylum, never to be seen again, they will lock you in a special area ::grins ear to ear::
-Hey I did not say it was a properable choice did I? I just said it was a choice, now didn't I? So what would you like.. to be locked away in one of the most gruesome asylums, never to be heard from again, having your visions recorded, given pills to have more?
+I know you were not asking for this but you are entitled to some knowing. You can metamorphsis into _one of the gifted_  right now. Be possibly captured, locked away for eternity in this asylum, never to be seen again, they will lock you in a special area ::grins ear to ear::.
+Hey I did not say it was a preferable choice did I? I just said it was a choice, now didn't I? So what would you like.. to be locked away in one of the most gruesome asylums, never to be heard from again, having your visions recorded, given pills to have more?
 Or would you like me to help you move to the next gateway?
 I am not a choice maker I only give options in everything. You have free will here my new friend. Just remember you have a secret in you and they want it here, in this compound. They will do anything to get it...and your to live an excruicatingly longer than normal life. If here in extreme torment until they get what they want or they break you...
 
@@ -61,6 +61,8 @@ I am not a choice maker I only give options in everything. You have free will he
 
 **RUN**..did you now hear me? I said fucking run.. down the hall, past the observatory, and through the door that says 'Experiemnts'. I will make a distraction for you, do not worry about that....
 May you find your way in peace remember what I told you on your quest. _May you go in Tal-quar_. Now if you have made your choice, either lie in the bed next to me...or hide behind the door. I am about to set your trap or deversion.
+Okay on the count of three....1...2...3....AHHHHHH!!!!!!!!!
 
+As Justin starts his scream you hear people rustling, commotion, all the guards are coming. This could be your big break! Or your pit fall in another breath. So what do you do? The _choice is yours_ and _yours alone_ and it is **NOW**!
 [hide in bed](coward.md)
 [hide behind door](run.md)
