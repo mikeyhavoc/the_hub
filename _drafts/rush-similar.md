@@ -16,24 +16,24 @@ Calmly I shrugged it off, I am fine. I told them... just a nightmare; Please do 
 
 ## introductions
 
-My name is Justin, I am around 15 they estimate from all the tests they have done. I live in a medical facility for the... we will say special. I was left here when I was an infant, by someone no one knows to be raised and been having eerie dreams ever since. My doctors say it has something to do with my abandonment issues. I have it to do with my future, my past, and who I am.
+My name is Justin, I am around 15 they estimate from all the tests they have done. I live in a medical facility for the... we will say special. I was left here when I was an infant, by someone no one knows to be raised and been having eerie dreams ever since. My doctors say it has something to do with my abandonment issues. In reality.. it has to do with my future, my past, and who I am. But that is not for them to know. So I block that part out for the Doctors to know. It is dangerous for them to know to much about us here for you see.
 
-The only thing that came with me was a bracelet, a special usb drive, and a fund to support me through out.. spending your entire life in a special hospital is not cheap, and dealing with psychiactric doctors is not either. Asking you about your dreams, your feelings, and what you think they mean. Then they contemplate and read out what you spoke on them and try to help you interpret them too.
+The only thing that came with me was a fund. A fund to support me through out life... To spend my entire life in a special hospital is not cheap, and dealing with psychiactric doctors is not either. Asking you about your dreams, your feelings, and what you think they mean. Then they contemplate and read out what you spoke on them and try to help you interpret them too.
 Oh, thats right the dream.. where you came in...
 
 ## Interpretations Vs Accountability
 
 ### Highways & Truckstops
 
-So, you do not say? You were involved in the same realm, before coming to me? Well then it must not be a coincidence, I do not believe in coincidences. _Please do not_ say you are here because you took the blood of a similarity? **You are**, are you? No wonder, I had another nightmare. shhhhh, is anyone around? No? good. Because there is a lot to go over then. This is only one of your many destinations to the _end of the line_ now.
+So, you do not say? You were involved in the same realm, before coming to me? Well then it must not be a coincidence, I do not believe in coincidences. _Please do not_ say you are here because you took the blood of a similarity? **You are**, are you? No wonder, I had another nightmare. shhhhh, is anyone around? No? good. Because there is a lot to go over then. This is only one of your many destinations to the key of what you _seek_ now.
 
 ### Attention::Attention
 
-Well, I now know you met _Gor-gol_. He is not as nice nor as evil as he seems. I would never trust him though. He will appear many times on your journey, watch out for his 'Trades'. Because nothing is free, everything comes at a cost journeyman. Next, never forget a 'carry over today is worth much tomorrow'. This might not make sense now but it will in due time. Also, do not trust anyone from the Crym-nombylia. They seem quite honest, friendly, and out to help..but well you will understand if you choose otherwise.
+I am not a mind reader but if you got a hold of blood of a 'mini-similarity' you met _Gor-gol_. He is not as nice nor as evil as he seems. I would never trust him though. He will appear many times on your journey, watch out for his 'Trades'. Because nothing is free, everything comes at a cost journeyman. Next, never forget a 'carry over today, positive are worth much tomorrow, while negatives will only bring consequences'. This might not make sense now but it will in due time. Also, do not trust anyone from the Crym-nombylia. They seem quite honest, friendly, and out to help..but well you will understand if you choose otherwise. You are a free thinker, by the way. I nor anyone else wholds control over you, but your actions. This might be a blessing or a curse.
 
 ### Why..Yes Why
 
-So.. you never understood why did you? Well, it is quite simple honestly. You have to reach the end destination to understand though. That is not for a gatekeeper to explain. Especially the originator, I only keep the origin gate open. that is my job. Sorry, you have to meet the destinatior to grasp. Just remember your part of the story now to and at the end you might become a gatekeepr too. It is part of the gig.
+So.. you never understood why you had to choose did you? Well, it is quite simple honestly. You have to reach the end destination to understand though. That is not for a gatekeeper to explain. Especially an origin gate keeper, I only keep the origin gate open. that is my job. Sorry, you have to meet the destinatior to grasp. Just remember your part of the story now just begins. It will become far more than anything you expected, and nothing you thought it could ever was going to be as a human. It is part of the gig when you, made a deal with _Gor-gol_.
 
 Drinking mini-similarity, is not just rainbows and butterflies, it is like a beacon. your now one of the chosen. ::looks around::.
 I know _Gor-gol_ did not tell you what you were getting into. He never told me either. But hey that is part of the adventure. You will see after the light. But do not worry about it now. Just enjoy the fucking ride...yadda..shh.. someone is coming!
@@ -42,7 +42,11 @@ I know you have questions, but this is not the place, this is the worst place ho
 
 ## Tribettica
 
-Right now we are in **Tribettica** which is not only _15 light years_ off your  course. But also not even in jurisdiction of alien races. These quote "people", thank the _moon neir fairy dune_ did not see you. Have been trying to contact outside life for the past 2000 years with primitive means. Failing repeatively, of course but they think they are getting closer. Not knowing they are actually just a tv show for one of the furthest outreaches. Those beings sends them there children's hand me downs and by the time they have reached the planet. Then learned to use... You got it 'Triple A Rating Tv' for them, as the folks here are a disater. The only building that is sealed from reception is this one. 
+Right now we are in **Tribettica** which is not only _15 light years_ off your  course. But also not even in jurisdiction of the _planet_ you should of landed on. These quote "people", thank the _moon neir fairy dune_ did not see you. Have been trying to contact outside life for the greater part of 2000 years. Failing repeatively, of course, they think they are getting closer often. Not knowing they are actually just a tv show for one of the furthest outreaches of the _chi-nebula_. Those beings, send them there children's hand me down toys and by the time they have reach the planet. They are ancient artifacts to them. But to this race, they are just above of thier I.Q and barely starting to learn to use them. Whic presents: You got it 'Triple A Rating Tv' for them, as the folks here are a disater, messing with chemicals, weapons, tools that are beyond there grasp.
+
+### Hiding From Tribettica 
+
+The only building that is sealed from reception is this one. 
 
 ## Farewells
 
