@@ -1,8 +1,8 @@
 ---
-title: A rush of Similar
+title: Point of Entry
 author: Michael Williams
 date: 2017-12-22 21:29:23 -0500
-permalink: docs/rush-similar
+permalink: docs/point-of-entry
 redirct_from: docs/similarity-1
 ---
 # Divine Touchdowns
@@ -46,9 +46,11 @@ Right now we are in **Tribettica** which is not only _15 light years_ off your  
 
 ### Hiding From Tribettica 
 
-The only building that is sealed from reception is this one. 
+The only building that is sealed from reception for them to watch is this one. _Gor-gol_, many many moons ago found out that some mini-similarities were being sent here. Since you have a 1 out of 7 chance; When receiving similarity blood of where you will land. He thought it was dangerous  
 
 ## Farewells
+
+### Options You have Gained
 
 So, I know you were not asking for this but you are entitled to some knowing. You can metamorphsis into a human right now... Be locked away for eternity in this asylum, never to be seen again, they will lock you in a special area ::grins ear to ear::
 Hey I did not say it was a properable choice did I? I just said it was a choice, now didn't I? So what would you like.. to be locked away in one of the most gruesome asylums, never to be heard from again, having your visions recorded, given pills to have more?
