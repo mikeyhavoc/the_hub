@@ -41,3 +41,8 @@ I know _Gor-gol_ did not tell you what you were getting into. He never told me e
 
 ## Farewells
 
+So, I know you were not asking for this but you are entitled to some knowing. You can metamorphsis into a human right now... Be locked away for eternity in this asylum, never to be seen again, they will lock you in a special area ::grins ear to ear::
+Hey I did not say it was a properable choice did I? I just said it was a choice, now didn't I? So what would you like.. to be locked away in one of the most gruesome asylums, never to be heard from again, having your visions recorded, given pills to have more?
+Or would you like me to help you move to the next gateway?
+I am not a choice maker I only give options in everything. You have freewill here my new friend. Just remember you have a secret in you and they want it here in this compound. They will do anything to get it. So be prepared to live an excruicatingly longer than normal life in extreme torment until they get what get it or they break you.
+
