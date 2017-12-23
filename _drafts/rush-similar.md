@@ -63,6 +63,8 @@ I am not a choice maker I only give options in everything. You have free will he
 May you find your way in peace remember what I told you on your quest. _May you go in Tal-quar_. Now if you have made your choice, either lie in the bed next to me...or hide behind the door. I am about to set your trap or deversion.
 Okay on the count of three....1...2...3....AHHHHHH!!!!!!!!!
 
+## The Choice
+
 As Justin starts his scream you hear people rustling, commotion, all the guards are coming. This could be your big break! Or your pit fall in another breath. So what do you do? The _choice is yours_ and _yours alone_ and it is **NOW**!
 [hide in bed](coward.md)
 [hide behind door](run.md)
