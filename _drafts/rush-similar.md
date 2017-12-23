@@ -30,3 +30,14 @@ So, you do not say? You were involved in the same realm, before coming to me? We
 ### Attention::Attention
 
 Well, I now know you met _Gor-gol_. He is not as nice nor as evil as he seems. I would never trust him though. He will appear many times on your journey, watch out for his 'Trades'. Because nothing is free, everything comes at a cost journeyman. Next, never forget a 'carry over today is worth much tomorrow'. This might not make sense now but it will in due time. Also, do not trust anyone from the Crym-nombylia. They seem quite honest, friendly, and out to help..but well you will understand if you choose otherwise.
+
+### Why..Yes Why
+
+So.. you never understood why did you? Well, it is quite simple honestly. You have to reach the end destination to understand though. That is not for a gatekeeper to explain. Especially the originator, I only keep origin gate open. that is my job. Sorry, you have to meet the destinatior to grasp. Just remember your part of the story now to and at the end you might become a gatekeepr too.
+It is part of the gig.
+
+Drinking mini-similarity, is not just rainbows and butterflies, it is like a beacon. your now one of the chosen. ::look around::.
+I know _Gor-gol_ did not tell you what you were getting into. He never told me either. But hey that is part of the adventure. You will see after the light. But do not worry about it now. Just enjoy the fucking ride. 
+
+## Farewells
+
