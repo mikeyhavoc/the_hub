@@ -12,7 +12,7 @@ redirct_from: docs/similarity-1
 As my heart pounds harder I wake up in a sweat! Screaming, I almost jump out of my bed!
 > What is going on in there? - yells the nurse!
 > We heard voices! who is here?! What is the commotion?! - the other children wanted to know.
-Calmly I shrugged it off, I am fine. I told them... just a nightmare; Please do not worry, I said. My lord I thought to myself, it was so real. I truly felt in the realm this time. _we..we are getting closer_. Someone decided to become a _similarity_..::gasp:: _no_, this can not be **reality**. That was in _my dreams_ though or was it? I had more questions now then answers. Fuck, oh..sorry where are my manners. I did not even introduce myself, and yes I see you under my bed. Do not be alarmed. Just be **happy** no one else did!.
+Calmly I shrugged it off, I am fine. I told them... just a nightmare; Please do not worry, I said. My lord I thought to myself, it was so real. I truly felt in the realm this time. _we..we are getting closer_. Someone decided to become a _similarity_..::gasp:: _no_, this can not be **reality**. That was in _my dreams_ though or was it? I had more questions now then answers. Fuck, oh..sorry where are my manners. I did not even introduce myself, and yes I see you under my bed. Do not be alarmed. Just be **happy** no one else did..shit its things just got real.
 
 ## introductions
 
