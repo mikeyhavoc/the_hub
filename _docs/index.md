@@ -2,6 +2,7 @@
 title: Welcome
 permalink: /docs/home/
 redirect_from: /docs/index.html
+dtae: 2018-01-11 10:08:40 -0500
 ---
 
 ## Getting started
