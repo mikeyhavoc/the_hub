@@ -7,33 +7,35 @@ redirct_from: docs/similarity-1
 ---
 # Divine Touchdowns
 
-> Every small breath... is nothing but a miracle from an interior me casting a breath.
+> We can choose to see everything or... just what we like. What would you prefer?
 
 As my heart pounds harder I wake up in a sweat! Screaming, I almost jump out of my bed!
+
 > What is going on in there? - yells the nurse!
+
 > We heard voices! who is here?! What is the commotion?! - the other children wanted to know.
-Calmly I shrugged it off, I am fine. I told them... just a nightmare; Please do not worry, I said. My lord I thought to myself, it was so real. I truly felt in the realm this time. _we..we are getting closer_. Someone decided to become a _similarity_..::gasp:: _no_, this can not be **reality**. That was in _my dreams_ though or was it? I had more questions now then answers. Fuck, oh..sorry where are my manners. I did not even introduce myself, and yes I see you under my bed. Do not be alarmed. Just be **happy** no one else did..shit its things just got real.
+
+Calmly I shrugged it off, I am fine. I told them... just a nightmare; Please do not worry, I said. My lord I thought to myself, it was so real. I truly felt in the realm this time. _we..we are getting closer_. Someone decided to become a _similarity_..::gasp:: _no_, this can not be **reality**. That was in _my dreams_ though or was it?  I had more questions now then answers. Fuck, sorry where are my manners. I did not even introduce myself, and yes I see you under my bed. Do not be alarmed. Just be **happy** no one else did..shit things just got real. Other than this is not being the place you want to be, it is a bad time to be a _mini-similarity_, and I hope you did not set off the beacon where I live.
 
 ## introductions
 
-My name is Justin, I am around 15 they estimate from all the tests they have done. I live in a medical facility for the... we will say special. I was left here when I was an infant, by someone no one knows to be raised and been having eerie dreams ever since. My doctors say it has something to do with my abandonment issues. In reality.. it has to do with my future, my past, and who I am. But that is not for them to know. So I block that part out for the Doctors to know. It is dangerous for them to know to much about us here for you see.
-
-The only thing that came with me was a fund. A fund to support me through out life... To spend my entire life in a special hospital is not cheap, and dealing with psychiactric doctors is not either. Asking you about your dreams, your feelings, and what you think they mean. Then they contemplate and read out what you spoke on them and try to help you interpret them too.
-Oh, thats right the dream.. where you came in...
+Sorry where are my manners shhh...someone is walking by. okay, my name is Justin, I am around 15 they estimate from all the tests they have done. I live in this medical facility for the... we will say special. I was left here when I was an infant, by someone no one knows to be raised and been having eerie dreams ever since. HIDE, why hello DR. how are you? mhmm, why yes I took my medicine today. No I would not lie to you. Yes, in the morning we can go over my dreams, that is fine thank you for being concerned. Fuck, you are a thorn in my ass kid. Now I have to fake a loop dream so they do not spot you kid in my mind. It is dangerous for them to know to much about us here for you see....shhh someones coming, get back under the bed!
 
 ## Interpretations Vs Accountability
 
-### Highways & Truckstops
+Okay the close is clear, those soul suckers are gone. I never asked. What brings you out to these parts? I do not get many visitors these days, I did not know the portals even worked anymore to be honest. I promised my soul I would never abandon my post, but still.... I .. well it has been over 100 years since the last traveler. I thought my job was done _Gor-gol_ , did not mention it would reactivate ::sigh::. 
+
+### Highways & Truck Stops
 
 So, you do not say? You were involved in the same realm, before coming to me? Well then it must not be a coincidence, I do not believe in coincidences. _Please do not_ say you are here because you took the blood of a similarity? **You are**, are you? No wonder, I had another nightmare. shhhhh, is anyone around? No? good. Because there is a lot to go over then. This is only one of your many destinations to the key of what you _seek_ now.
 
 ### Attention::Attention
 
-I am not a mind reader but if you got a hold of blood of a 'mini-similarity' you met _Gor-gol_. He is not as nice nor as evil as he seems. I would never trust him though. He will appear many times on your journey, watch out for his 'Trades'. Because nothing is free, everything comes at a cost journeyman. Next, never forget a 'carry over today, positive are worth much tomorrow, while negatives will only bring consequences'. This might not make sense now but it will in due time. Also, do not trust anyone from the Crym-nombylia. They seem quite honest, friendly, and out to help..but well you will understand if you choose otherwise. You are a free thinker, by the way. I nor anyone else wholds control over you, but your actions. This might be a blessing or a curse.
+I am not a mind reader but if you got a hold of blood of a 'mini-similarity' you met _Gor-gol_. He is not as nice nor as evil as he seems. I would never trust him though. He will appear many times on your journey, watch out for his 'Trades'. Because nothing is free, everything comes at a cost journeyman. Next, never forget a 'carry over today, positive are worth much tomorrow, while negatives will only bring consequences'. This might not make sense now but it will in due time. Also, do not trust anyone from the Crym-nombylia. They seem quite honest, friendly, and out to help..but well you will understand if you choose otherwise. You are a free thinker, by the way. I nor anyone else holds control over you, but your actions. This might be a blessing or a curse.
 
 ### Why..Yes Why
 
-So.. you never understood why you had to choose did you? Well, it is quite simple honestly. You have to reach the end destination to understand though. That is not for a gatekeeper to explain. Especially an origin gate keeper, I only keep the origin gate open. that is my job. Sorry, you have to meet the destinatior to grasp. Just remember your part of the story now just begins. It will become far more than anything you expected, and nothing you thought it could ever was going to be as a human. It is part of the gig when you, made a deal with _Gor-gol_.
+So.. you never understood why you had to choose did you? Well, it is quite simple honestly. You have to reach the end destination to understand though. That is not for a gatekeeper to explain. Especially an origin gate keeper, I only keep the origin gate open. that is my job. Sorry, you have to meet the destinator to grasp. Just remember your part of the story now just begins. It will become far more than anything you expected, and nothing you thought it could ever was going to be as a human. It is part of the gig when you, made a deal with _Gor-gol_.
 
 Drinking mini-similarity, is not just rainbows and butterflies, it is like a beacon. your now one of the chosen. ::looks around::.
 I know _Gor-gol_ did not tell you what you were getting into. He never told me either. But hey that is part of the adventure. You will see after the light. But do not worry about it now. Just enjoy the fucking ride...yadda..shh.. someone is coming!
