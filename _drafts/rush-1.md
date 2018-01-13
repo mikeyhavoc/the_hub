@@ -2,8 +2,8 @@
 title: Point of Entry
 author: Michael Williams
 date: 2017-12-22 21:29:23 -0500
-permalink: docs/point-of-entry
-redirct_from: docs/similarity-1
+permalink: /docs/point-of-entry
+redirct_from: /docs/rush-1
 ---
 # Divine Touchdowns
 
