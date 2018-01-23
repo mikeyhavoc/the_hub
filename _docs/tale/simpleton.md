@@ -4,7 +4,6 @@ author: Michael Williams
 date: 2017-12-21 13:47:51 -0500
 category: tales-of-gods
 permalink: docs/tale/simpleton
-redirect_from: docs/tale/index.html
 ---
 # The Legends
 
