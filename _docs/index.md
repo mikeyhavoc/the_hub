@@ -5,7 +5,7 @@ redirect_from: /docs/index.html
 dtae: 2018-01-11 10:08:40 -0500
 ---
 
-## Getting started
+## Starting Fresh
 
 Greetings... within these docs are ongoing rambles of stories. 
 They are tangents, they are raw, they are what I enjoy and they enjoy what the universe offers.
