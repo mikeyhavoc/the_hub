@@ -2,25 +2,16 @@
 title: Welcome
 permalink: /docs/home/
 redirect_from: /docs/index.html
+dtae: 2018-01-11 10:08:40 -0500
 ---
 
-## Getting started
+## Starting Fresh
 
 Greetings... within these docs are ongoing rambles of stories. 
 They are tangents, they are raw, they are what I enjoy and they enjoy what the universe offers.
+I have revised what I am going to do with this somewhat. 
 
-## Releases 
+1. I am going to be working on the page layout heavily for the next few weeks. This was a template originally and I want it to be mine.
 
-I will try to release a new part of one story a week.
-The rules are, 
-1. there can only be 5 stories at the same time going at the same time.
-2. only one part of a story is released each week.
-3. only once an entire story is done can a new story be released.
-4. I will put the story dates of release and title here when they are released.
-5. once a story is established it seperates from blog posts in telling.
-6. these tales are everything and nothing at the same time.
-7. I do not know a genre for these stories give it to them yourself.
-8. these are licensed to me ask me if you want to use them. you must ask for **Permission**.
-9. hit me up on github or my email address if you would like to be part of the fun.
-
+1. I am going to release possibly a post, every week.. might be an update on what I am working on. Or a story post.
 

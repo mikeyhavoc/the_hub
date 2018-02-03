@@ -10,7 +10,7 @@ category: tales-of-gods
 
 ## Particles and Fairy Dust
 
-What are you made of? This might come up someday, lots of answers are possible. Energy, protons, atoms, and the occassional fairy dust, or something far more complicated? What you do not know of the self powering mini folk called '_mini similarities_'?
+What are you made of? This might come up someday, lots of answers are possible. Energy, protons, atoms, and the occassional fairy dust, or something far more complicated? Like those creepy ones.. they enjoy taking planets over ummmm. Mini, mini sim....no, sim mini..OH! _mini-similarity's_!  What??? You do not know, or heard of them? Hmmm, maybe I spoke too much, saying "_ugh_" under his **breath**. Well you might be in luck then you little _sig-nih_ mini folk called '_mini similarities_'?
 
 ## Join The Realm
 
@@ -22,4 +22,6 @@ You now belong! Welcome, to being _worth something_ more than just a meatbag. Or
 
 Now you might be saying, to yourself something that possibly goes along these lines...
 > "mini similarities dont exist...humans are the most powerful beings in the universe you ark-nard!!"
-Well, wake the fuck up you three-dimensional, single-cored, air-breathing, _ark-nard loving_, failure to reach another life form. You already destoryed your own planet...Yes _I went there_. So you can drink your own poison now that were pals ::grins::..hey buddy, I am just looking out for your best interest here honest. Right, that is what is called I believe on your planet. So I will put the choice up to you now. There is two directions you prick your hand with 'mini similarities' blood. Or you can join the 'quays-nar cult'....so...buddy...pal...What will it be XD :] I know your an adventerous person, besides you only die once...or do you? haha only one way to tell for real. Am I right or am I right?
+Well, wake the fuck up you three-dimensional, single-cored, air-breathing, _ark-nard loving_, failure to reach another life form. You already destoryed your own planet...Yes _I went there_. So you can drink your own poison now that were pals
+
+::grins::..hey buddy, I am just looking out for your best interest here honest. Right, that is what it is called I believe on your planet. So I will put the choice up too you now. There is two directions you prick your hand with 'mini similarities' blood. Or you can join the 'quays-nar cult'....so...buddy...pal...What will it be ::smiles:: I know your an adventerous person, besides you only die once...or do you? haha only one way to tell for real. Am I right or am I right?
