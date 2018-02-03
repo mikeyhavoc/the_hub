@@ -10,7 +10,7 @@ category: tales-of-gods
 
 ## Particles and Fairy Dust
 
-What are you made of? This might come up someday, lots of answers are possible. Energy, protons, atoms, and the occassional fairy dust with mini me's powering larger me's running  larger me's. What you do not know of the self powering mini folk called '_mini similarities_'?
+What are you made of? This might come up someday, lots of answers are possible. Energy, protons, atoms, and the occassional fairy dust, or something far more complicated? What you do not know of the self powering mini folk called '_mini similarities_'?
 
 ## Join The Realm
 
